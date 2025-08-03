@@ -1,4 +1,4 @@
-# My First Day at GNDEC
+# Day 1 at GNDEC
 <B>An Early Start: A Day of Reflection and Celebration at GURU NANAK DEV ENGINEERIN COLLEGE</B><br>
 
 <B>Arrival and Gurudwara Hall</B><br>
@@ -14,4 +14,15 @@ After the tranquil experience at the Gurudwara Hall, the college had thoughtfull
 
 The highlight of the day was the gathering in the college auditorium. Here, the teachers and the Principal took the stage, not merely as educators but as mentors and guides. Their addresses were not just about academic excellence, but also a source of motivation and encouragement, reminding the students of the dedication, hard work, and values that embody the spirit of the institution. The occasion was further amplified by the celebration of the college's 70th Jubilee. This milestone served as a powerful reminder of the college's long-standing commitment to education and its legacy of shaping futures. A jubilee, whether golden, diamond, or platinum, is a significant event for any institution, offering an opportunity to reflect on past achievements and set new goals for the future.<br>
 
-The day concluded around 3:30 PM, leaving a lasting impression of inspiration and pride in the hearts of the students. The combination of spiritual reflection at the Gurudwara, the warmth of shared refreshments, and the motivational words of the faculty, all woven into the grand celebration of the 70th Jubilee, created a truly memorable day. It reinforced not only the importance of academic pursuits but also the values of community, tradition, and the enduring legacy of the Guru Nanak Dev engineering College
+The day concluded around 3:30 PM, leaving a lasting impression of inspiration and pride in the hearts of the students. The combination of spiritual reflection at the Gurudwara, the warmth of shared refreshments, and the motivational words of the faculty, all woven into the grand celebration of the 70th Jubilee, created a truly memorable day. It reinforced not only the importance of academic pursuits but also the values of community, tradition, and the enduring legacy of the Guru Nanak Dev engineering College.<br>
+
+<B>DAY-2</B><br>
+
+<B> A lecture on universal human values</B><br>
+
+My second day at the college started with the lecture on universal human values by <B>Dr.Priya Darshni</B> her lecture made us realise that what we were lacking and helped us to make our shortcomings and show the path to be happy in life.<br>
+And then there was another lecture by <B>Dr. Arvind Dhingra</B><br>
+
+After that, we had a one hour break and then a proficiency test of English and mathematics with this the day concluded.
+
+
