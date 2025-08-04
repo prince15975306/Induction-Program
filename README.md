@@ -20,8 +20,8 @@ The day concluded around 3:30 PM, leaving a lasting impression of inspiration an
 
 <B> A lecture on universal human values</B><br>
 
-My second day at the college started with the lecture on universal human values by <B>Dr.Priya Darshni</B> her lecture made us realise that what we were lacking and helped us to make our shortcomings and show the path to be happy in life.<br>
-And then there was another lecture by <B>Dr. Arvind Dhingra</B><br>
+My second day at the college started with the lecture on universal human values by <B>Dr.Priya Darshni</B> mam her lecture made us realise that what we were lacking and helped us to make our shortcomings and show the path to be happy in life.<br>
+And then there was another lecture by <B>Dr. Arvind Dhingra</B> sir <br>
 
 After that, we had a one hour break and then a proficiency test of English and mathematics with this the day concluded.
 
