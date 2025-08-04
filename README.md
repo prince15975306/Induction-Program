@@ -1,6 +1,7 @@
 # Induction Program
 
 # Day 1 at GNDEC
+## July 30,2025
 ## An Early Start: A Day of Reflection and Celebration at GURU NANAK DEV ENGINEERIN COLLEGE<br>
 
 ### Arrival and Gurudwara Hall<br>
@@ -19,6 +20,7 @@ The highlight of the day was the gathering in the college auditorium. Here, the 
 The day concluded around 3:30 PM, leaving a lasting impression of inspiration and pride in the hearts of the students. The combination of spiritual reflection at the Gurudwara, the warmth of shared refreshments, and the motivational words of the faculty, all woven into the grand celebration of the 70th Jubilee, created a truly memorable day. It reinforced not only the importance of academic pursuits but also the values of community, tradition, and the enduring legacy of the Guru Nanak Dev engineering College.<br>
 
 # DAY-2<br>
+## August 1,2025
 
 #### A lecture on universal human values<br>
 
