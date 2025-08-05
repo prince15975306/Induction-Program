@@ -83,6 +83,32 @@ are some the events organised by causmic club .They also showed there insta page
 
 - There was ID card formation of MX section but Unfortunately Mam was not there.After that I spended the time with friends and returned home.
 
+# Day-4
+## August 5,2025
+
+- On 4th day the classes started at 1:30.Previously they were scheduled to be held in auditory but due to some reasons the it was took up by our seniors in workshop sem hall.
+
+### P2P lectures
+### 1:30 to 2:30
+
+- The lecture was taken by our Seniors and they informed us about college campus,societies in college and clubs. They also informed us about NCC and the trips organised by it and other societies.They further shared their thoughts on personality development and way of speaking.
+
+### Millets-Super Food
+### 2:30 to 4:00
+
+- The other lecture was on <B>Millets-Super Food</B> by <B>Dr.Shaffa Makkar</B>.She lecture let us know about benefits and cooking methods of millets.Millets are rich in high protein and fibres, also the mercury content in them is high.Due to which they can cure many heart diseases, harmonal imbalance and even cancer.One of the cooking method she taught was to soak the millets for 6-8 hrs.She taught us about various species of millets like
+
+- Finger millte
+- Foxtail millets
+- Kodo millet
+- Pearl millet
+- Barnyard millet
+- Proso millet
+- Sorghum
+
+After her lecture ended I came out of the audotorium and met my friends and then departed for home.
+
+
 
 
 
