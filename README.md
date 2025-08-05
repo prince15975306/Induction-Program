@@ -51,5 +51,24 @@ Upon entering the college premises, the first stop for everyone was the Gurudwar
 
 With this the day concluded.
 
+# Day-3
+## August 4,2025
+
+- The Third day started with prayer.Our Applied Science HoD <B>Dr.Harpreet Kaur</B> asked us to close our eyes and recite <B>Mul mantra</B>.It helped to calm our minds and relax our selves and filled us with an energy.
+
+### Introduction To Causmic Club
+### 8:30 to 9:30
+
+- The members of causmic club introduced us to causmic club in morning.It was created by our seniors.They were also the organizers of <B>Induction Program</B>.We came to know about the various events organised by it.
+- Apex
+- Ambit
+- Acme 
+are some the events organised by causmic club .They also showed there insta page and also their webiste <B>causmic.gndec.ac.in</B> so we can get latest info about its events ang recruitment.
+
+### Lecture on Motor Sports
+
+-Afterwards there was a lecture on motor sports By Gautam sir which widened our Knowledge.It was not just racing is involved but thinking of an engineer and his knowledge.
+
+
 
 
