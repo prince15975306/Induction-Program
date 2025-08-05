@@ -66,8 +66,24 @@ With this the day concluded.
 are some the events organised by causmic club .They also showed there insta page and also their webiste <B>causmic.gndec.ac.in</B> so we can get latest info about its events ang recruitment.
 
 ### Lecture on Motor Sports
+### 9:30 to 10:30
 
 -Afterwards there was a lecture on motor sports By Gautam sir which widened our Knowledge.It was not just racing is involved but thinking of an engineer and his knowledge.
+
+### Lecture on True Self
+### 10:30 to 12:30
+
+- The nect lecture was taken up by <B>Dr.Priya Darshni</B> Mam.This time she discussed about <B>Self and Body,Trust,Understanding</B>.She taught us that the needs of bosy and self are different like food is need of body and respect is the need of self.
+
+### After attending the lectures there was a break from 12:30 to 1:30
+
+### P2P Lectures
+
+- The P2P lecture was taken by our seniors.She taught us the <B>Body structure,header file,usernamespace,and defining varibles</B> of <B>C++</B> language.
+
+- There was ID card formation of MX section but Unfortunately Mam was not there.After that I spended the time with friends and returned home.
+
+
 
 
 
