@@ -114,10 +114,29 @@ After her lecture ended I came out of the audotorium and met my friends and then
 ### Lecture by Dr. Parminder Singh(Dean-students welfare)
 ### 9:30 to 10:00
 
-- The dean of students welfare **Dr.Parminder Singh** let the students to know about the college facilities like hostels, internet facilities, various societies, clubs etc. There is also a student 
+- The dean of students welfare **Dr.Parminder Singh** let the students to know about the college facilities like hostels, internet facilities, various societies, clubs etc. There is also a student committee and mess committee. The mess committee manages the food provided in hostels and is run by the students. The committee is also run by students with conveys problems of students to college administration.
 
+### Fitness for Engineers
+### 10:00 to 11:00
 
+- Fitness for engineers lecture was taken by **Mr. Manpreet Singh** .This lecture he conveyed the message how important the fitness is. He also explain that bodybuilding and fitness are different things. He informed us about body posture, while exercising and what supplements we should take.He further said that our traditional food is best for our health and the products that we order online how harmful they are. He told some basic exercises that we should do in our day-to-day life to improve our health.
 
+### Introduction to NCC
+### 11:00 to 12:30
+
+- **Brigadier P.S. Cheema** introduced us to NCC and informed us about the various camps organised by NCC, and also motivated us by his experience and thoughts. His personality and character inspired all of us. He made us aware against consumption of drugs. His character,thoughts,personality was a inspiration for all of us.
+
+### We had a lunch break from 12:30 to 1:30
+
+### P2P lecture
+### 1:30 to 2:30
+
+- The P2P lecture was taken by our seniors of **CAUSMIC CLUB**. In this lecture, we introduced ourselves to our seniors.
+
+### Physics lecture by Prof. Jaspreet Singh
+### 2:30 to 3:30
+
+- Sir introduced us to the real meaning of physics and also he told us the syllabus of physics for our first semester.
 
 
 
