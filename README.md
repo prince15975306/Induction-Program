@@ -114,7 +114,7 @@ After her lecture ended I came out of the audotorium and met my friends and then
 ### Lecture by Dr. Parminder Singh(Dean-students welfare)
 ### 9:30 to 10:00
 
-- The dean of students welfare _Dr Parminder Singh_
+- The dean of students welfare **Dr.Parminder Singh** let the students to know about the college facilities like hostels, internet facilities, various societies, clubs etc. There is also a student 
 
 
 
