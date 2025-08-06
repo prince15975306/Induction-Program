@@ -96,7 +96,7 @@ are some the events organised by causmic club .They also showed there insta page
 ### Millets-Super Food
 ### 2:30 to 4:00
 
-- The other lecture was on <B>Millets-Super Food</B> by <B>Dr.Shaffa Makkar</B>.She lecture let us know about benefits and cooking methods of millets.Millets are rich in high protein and fibres, also the mercury content in them is high.Due to which they can cure many heart diseases, harmonal imbalance and even cancer.One of the cooking method she taught was to soak the millets for 6-8 hrs.She taught us about various species of millets like
+- The other lecture was on <B>Millets-Super Food</B> by <B>Dr.Shaffy Makkar</B>.She lecture let us know about benefits and cooking methods of millets.Millets are rich in high protein and fibres, also the mercury content in them is high.Due to which they can cure many heart diseases, harmonal imbalance and even cancer.One of the cooking method she taught was to soak the millets for 6-8 hrs.She taught us about various species of millets like
 
 - Finger millte
 - Foxtail millets
