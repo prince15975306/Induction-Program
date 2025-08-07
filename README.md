@@ -1,4 +1,4 @@
-# Induction Program
+# Induction Program 2025
 
 # Day 1 at GNDEC
 ## July 30,2025
@@ -137,6 +137,28 @@ After her lecture ended I came out of the audotorium and met my friends and then
 ### 2:30 to 3:30
 
 - Sir introduced us to the real meaning of physics and also he told us the syllabus of physics for our first semester.
+
+# Day-6
+## August 7,2025
+
+### English Lecture by Prof.Manjot Kaur
+### 9:30 to 11:30
+
+- Early morning I had a **2 hrs** lecture by **Prof.Manjot Kaur**.In this lecture all the students of **MX** section introduced themselves.We played a quiz game.The students were divided in three teams A,B,Cand I was in team B.All the teams were performing well.The winner was decided by jumble word game,which was Team A.
+
+### Then we had a 1hrs break
+
+### Indroduction to CML by Dr.Lakhvir Singh Khana
+### 12:30 to 1:30
+
+- ** Dr.Lakhvir Singh Khana** introduced us to **CML** and different events organised by it. It is a society which inspires the students to learn and be productive. He also talked on some important topics which are important for a personality development. He told the us about **NPTEL**, which provide the students a large number of courses. He further told us about the procedure and how can we sign up for it and how to join a course.
+
+### Introduction to NSS by Dr.Jasvir Singh Grewal
+### 1:30 to 2:30
+
+- **Dr.Jasvir Singh Grewal** introduced us to NSS and it's different activities that help the society. The events organised by NSS make people aware about their responsibilities towards nature and society. **Blood donation camp and tree plantation** are some of the events organised by NSS.
+
+
 
 
 
