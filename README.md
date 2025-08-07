@@ -8,10 +8,7 @@
 ### 9:00 to 10:15
 
 - The crisp morning air of an early start, 9 AM to be exact, marked the beginning of a special day at the First Aid College. It was not just a regular day of lectures and practicals, but one steeped in tradition and celebration as the college commemorated its 70th Jubilee. The journey to the campus was filled with a sense of anticipation, knowing that the day held a unique blend of spiritual solace, academic inspiration, and celebratory spirit.
-Upon entering the college premises, the first stop for everyone was the Gurudwara Hall. The atmosphere inside was one of serene reverence. The chanting of religious hymns filled the space, and the path, a sacred prayer, was recited. This spiritual beginning underscored the holistic approach to education at the college, recognizing the importance of nurturing both mind and soul. Gurudwaras play a vital role in Indian society and culture, serving as centers of community life and fostering values of equality and service. Many also establish educational initiatives to empower the community.<br>
-
-![image alt](https://github.com/prince15975306/Induction-Program/blob/main/IMG_0674.jpeg?raw=true![image](https://github.com/user-attachments/assets/d783e2ba-1450-4027-9917-3de66ce65ef4)
-
+Upon entering the college premises, the first stop for everyone was the Gurudwara Hall. The atmosphere inside was one of serene reverence. The chanting of religious hymns filled the space, and the path, a sacred prayer, was recited. This spiritual beginning underscored the holistic approach to education at the college, recognizing the importance of nurturing both mind and soul. Gurudwaras play a vital role in Indian society and culture, serving as centers of community life and fostering values of equality and service. Many also establish educational initiatives to empower the community.
 ### Tea and snacks break<br>
 ### 10:15 to 10:45
 
